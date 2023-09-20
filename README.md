@@ -16,4 +16,9 @@ Na escola, os cruéis padrões de beleza e comportamento ditados pela sociedade 
 Além da intimidação, da perseguição e da violência psicológica, o bullying pode levar à violência física. Os profissionais da educação devem ficar atentos para evitar os casos de bullying e resolver a situação, conscientizando os agressores e auxiliando as vítimas.
 
 
-!{}https://s5.static.brasilescola.uol.com.br/img/2019/09/isolamento-social.jpg
+![](https://s5.static.brasilescola.uol.com.br/img/2019/09/isolamento-social.jpg)
+
+
+A violência não é combatida com mais violência. Às vezes, punições aos agressores são necessárias quando estes extrapolam qualquer limite razoável, porém, na maioria das vezes, os agressores também são jovens que sofrem por algum motivo. Nesses casos, a melhor maneira de solucionar o problema é pelo diálogo e conscientização. É necessário conscientizar aqueles que assistem, repetem ou indiretamente contribuem com o bullying, pois eles também mantêm o sistema de agressividade funcionando.
+
+Para além das campanhas governamentais e não governamentais, é necessário que as famílias unam-se com os profissionais da educação para que todos possam trabalhar na conscientização de seus filhos e no apoio emocional de que as vítimas do bullying necessitam.
