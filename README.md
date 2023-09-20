@@ -15,3 +15,5 @@ Na escola, os cruéis padrões de beleza e comportamento ditados pela sociedade 
 
 Além da intimidação, da perseguição e da violência psicológica, o bullying pode levar à violência física. Os profissionais da educação devem ficar atentos para evitar os casos de bullying e resolver a situação, conscientizando os agressores e auxiliando as vítimas.
 
+
+!{https://s5.static.brasilescola.uol.com.br/img/2019/09/isolamento-social.jpg}
