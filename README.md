@@ -7,3 +7,4 @@ A prática do bullying consiste em um conjunto de violências que se repetem por
 As agressões podem ser de ordem verbal, física e psicológica, comumente acontecendo as três ao mesmo tempo. As vítimas são intimidadas, expostas e ridicularizadas. São chamadas por apelidos vexatórios e sofrem variados quadros de agressão com base em suas características físicas, seus hábitos, sua sexualidade e sua maneira de ser.
 
 
+!<https://s3.static.brasilescola.uol.com.br/img/2019/09/bullying.jpg>
