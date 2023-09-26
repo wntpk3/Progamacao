@@ -9,7 +9,7 @@ As agressões podem ser verbais, físicas e psicológicas. As vítimas são inti
 
 A violência não é combatida com mais violência, pois é a mesma coisa que apagar fogo com mais fogo. Às vezes, punições aos agressores são necessárias quando estes extrapolam qualquer limite razoável, porém, na maioria das vezes, os agressores também são jovens que sofrem por algum motivo. Nesses casos, a melhor maneira de solucionar o problema é pelo diálogo e conscientização. É necessário conscientizar aqueles que assistem, repetem ou indiretamente contribuem com o bullying, pois eles também mantêm o sistema de agressividade funcionando.
 
-Para além das campanhas governamentais e não governamentais, é necessário que as famílias unam-se com os profissionais da educação para que todos possam trabalhar na conscientização de seus filhos eno apoio emocional de que as vítimas do bullying necessitam.
+Além das campanhas governamentais e não governamentais, é necessário que as famílias unam-se com os profissionais da educação para que todos possam trabalhar na conscientização de seus filhos eno apoio emocional de que as vítimas do bullying necessitam.
 
 
 O bullying pode acontecer no condomínio, na vizinhança, em grupos ou agremiações esportivas etc., mas o local onde mais acontece esse tipo de crime é na escola. Fatores sociológicos e psicológicos explicam esse fenômeno: é na escola onde os jovens passam grande parte de seu tempo e interagem com um número maior de pessoas.
