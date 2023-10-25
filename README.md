@@ -4,7 +4,7 @@ Bullying são atos de agressão e intimidação repetitivos contra um indivíduo
 A prática do bullying consiste em um conjunto de violências que se repetem por algum período. Geralmente são agressões verbais, físicas e psicológicas que humilham, intimidam e traumatizam a vítima. Os danos causados pelo bullying podem ser profundos, como a depressão, distúrbios comportamentais e até o suicídio.
 
 
-As agressões podem ser verbais, físicas e psicológicas. As vítimas são intimidadas, expostas e ridicularizadas. São chamadas por apelidos vergonhosos e sofrem diversos tipos de agressão com base em suas características físicas, comumente acontecendo as três ao mesmo tempo. De acordo com seus hábitos, sua sexualidade e sua maneira de ser.
+As vítimas são intimidadas, expostas e ridicularizadas. São chamadas por apelidos vergonhosos e sofrem diversos tipos de agressão com base em suas características físicas, comumente acontecendo as três ao mesmo tempo. De acordo com seus hábitos, sua sexualidade e sua maneira de ser.
 
 
 A violência não é combatida com mais violência, pois é a mesma coisa que apagar fogo com mais fogo. Às vezes, punições aos agressores são necessárias quando estes extrapolam qualquer limite razoável, porém, na maioria das vezes, os agressores também são jovens que sofrem por algum motivo. Nesses casos, a melhor maneira de solucionar o problema é pelo diálogo e conscientização. É necessário conscientizar aqueles que assistem, repetem ou indiretamente contribuem com o bullying, pois eles também mantêm o sistema de agressividade funcionando.
