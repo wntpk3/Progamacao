@@ -12,7 +12,7 @@ A violência não é combatida com mais violência, pois é a mesma coisa que ap
 Além das campanhas governamentais e não governamentais, é necessário que as famílias unam-se com os profissionais da educação para que todos possam trabalhar na conscientização de seus filhos eno apoio emocional de que as vítimas do bullying necessitam.
 
 
-O bullying pode acontecer no condomínio, na vizinhança, em grupos ou agremiações esportivas etc., mas o local onde mais acontece esse tipo de crime é na escola. Fatores sociológicos e psicológicos explicam esse fenômeno: é na escola onde os jovens passam grande parte de seu tempo e interagem com um número maior de pessoas.
+O bullying pode acontecer no condomínio, na vizinhança, em grupos, etc., mas o local onde mais acontece esse tipo de crime é na escola. Fatores sociológicos e psicológicos explicam esse fenômeno: é na escola onde os jovens passam grande parte de seu tempo e interagem com um número maior de pessoas.
 
 Também é na escola o lugar onde os reflexos da sociedade fazem com que se crie uma espécie de micro-organismo social, que tende a recriar a sociedade em um espaço menor e isolado. A sociedade em geral é agressiva e excludente, e esses fatores tendem a se repetir entre os jovens no âmbito escolar.
 
